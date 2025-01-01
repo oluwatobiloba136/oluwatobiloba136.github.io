@@ -20,7 +20,7 @@ An interesting question to ask in the above text is:
 - Who is God talking to?
 - Who created God himself?
 
-The answer to the above question is God is trinity - God the Father, God the Son, God the Holy Spirit.
+The answer to the above questions is God is trinity - God the Father, God the Son, God the Holy Spirit. God is enjoying the relationship among the Trinity.
 
 `The grace of the Lord Jesus Christ and the love of God and the fellowship of the Holy Spirit be with you all - 2 Cor 13:14
 `
@@ -70,7 +70,7 @@ He habit eternity and dwell with the humble [(Isaiah 57:15)](https://www.biblega
 
 >The Trinity in Action
 
-We Trinity can be seen in actions as revealed in the following passage:
+The Trinity can be seen in actions as revealed in the following passage:
 
 ```
 The Spirit [*God the Holy Spirit*] of the Lord God [*God the Father*] is upon me [*God the Son*]; because the Lord hath anointed me to preach good tidings unto the meek; he hath sent me to bind up the brokenhearted, to proclaim liberty to the captives, and the opening of the prison to them that are bound - (Isaiah 60:1)
