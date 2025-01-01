@@ -7,4 +7,4 @@ tag: [like, comment, subscribe]
 ---
 
 
-# Thanks for being here
+# Thanks for being here.
