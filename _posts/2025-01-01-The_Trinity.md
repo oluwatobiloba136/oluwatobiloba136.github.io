@@ -4,6 +4,7 @@ title: The Trinity
 date: 01-01-2025
 categories: [The Creation Series]
 tag: [like, comment, subscribe]
+author: Tobi Kazeem
 ---
 
 
@@ -35,4 +36,4 @@ He revealed his identity when Moses requested for his presence [(Exodus 33:20)](
 
 He is the invisible God [(Col 1:15)](https://www.biblegateway.com/passage/?search=Colossians%201%3A15&version=KJV)
 
->Who is God theSon?
+>Who is God the Son?
