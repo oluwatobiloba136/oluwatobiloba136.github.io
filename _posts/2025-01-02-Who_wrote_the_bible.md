@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Who wrote the bible?
-date: 01-01-2025
+date: 02-01-2025
 categories: [The Creation Series]
 tag: [Bible, Holy Spirit]
 author: Tobi Kazeem
