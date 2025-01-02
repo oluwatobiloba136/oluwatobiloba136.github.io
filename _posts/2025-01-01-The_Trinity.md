@@ -81,3 +81,4 @@ And Jesus [*God the Son*], when he was baptized, went up straightway out of the 
 
  And lo a voice from heaven, saying, [*God the Father*] This is my beloved Son, in whom I am well pleased. - (Matthew 3:16-17)
  ```
+
