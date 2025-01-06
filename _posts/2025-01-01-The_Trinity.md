@@ -15,12 +15,12 @@ author: Tobi Kazeem
 `...And God said, Let us make man in our image, after our likeness - Gen 1:26
 `
 
-An interesting question to ask in the above text is:
-- What was God doing before the creation? 
-- Who is God talking to?
-- Who created God himself?
+One interesting question to ask in the above text is:
 
-The answer to the above questions is God is trinity - God the Father, God the Son, God the Holy Spirit. God is enjoying the relationship among the Trinity.
+- Who is God talking to?
+
+
+The answer to the above questions is God is Trinity - God the Father, God the Son, God the Holy Spirit. God is enjoying the relationship among the Trinity.
 
 `The grace of the Lord Jesus Christ and the love of God and the fellowship of the Holy Spirit be with you all - 2 Cor 13:14
 `
