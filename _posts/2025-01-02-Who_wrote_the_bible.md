@@ -7,7 +7,7 @@ tag: [Bible, Holy Spirit]
 author: Tobi Kazeem
 ---
 
-# Who wrote the Bible?.
+# Who wrote the Bible?
 
 `Knowing this first, that no prophecy of the scripture is of any private interpretation.
 For the prophecy came not in old time by the will of man: but holy men of God spake as they were moved by the Holy Ghost. - 2 Peter 1:20-21
