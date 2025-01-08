@@ -7,7 +7,7 @@ tag: [Genesis 1:1, God, Creation, Beginning]
 author: Tobi Kazeem
 ---
 
-# God the Creator?
+# God the Creator.
 
 `In the beginning God created the heaven and the earth. - Gen 1:1
 `
