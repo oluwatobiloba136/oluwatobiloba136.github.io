@@ -39,7 +39,7 @@ God revealed clearly to us through Prophet Isaiah that He did not create the ear
 
 From the direct verse of Gen 1:1-2, God did not revealed to us why the earth became dark, empty and void.
 
-Firstly , we have to know that the creation story was centre on the redemption of mankind through His son, Jesus Christ. As a bible reader , we have to fine tuned our study of the bible as Jesus Christ as  the story. [(Luke 24:44)](https://www.biblegateway.com/passage/?search=Luke%2024%3A44&version=KJV)
+Firstly , we have to know that the creation story was centre on the redemption of mankind through His son, Jesus Christ. As a bible reader , we have to fine tuned our study of the bible that  Jesus Christ is the main character of the story. [(Luke 24:44)](https://www.biblegateway.com/passage/?search=Luke%2024%3A44&version=KJV)
 
 However, the dark period after the creation might have been related to the fall of lucifer who weaken the nations, [(Isaiah 14:12)](https://www.biblegateway.com/passage/?search=Isaiah%2014%3A12&version=KJV) but God did not give us a direct details as the creation story was centre on Jesus Christ, the Redeemer.
 
